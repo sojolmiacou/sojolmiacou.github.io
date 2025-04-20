@@ -3,8 +3,3 @@ Muhammad Sojol Mia is a student of the Department of Public Administration in Co
 Recently he wrote a book named "Six Fundamental Point of Tabligh" which has a online version now!
 In this book, you can learn some basic topics of Da'wah and Tabligh related terms like Six Point of Tabligh, Adabul Gasto, System of Taalim, Maashuara, Saafor, Maanjil, Eeman- Eekiin's Boyaan, how to perform after Magrib's and Fojor Boyaan or Lecture and some others basic terms, insha'Allah.
 
-From
-Muhammad Sojol Mia,
-Department of Public Administration, 
-Comilla University.
-
